@@ -1,0 +1,2 @@
+# critical-thinking
+Critical Thinking
